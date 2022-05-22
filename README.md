@@ -9,8 +9,3 @@
 
 📫 Reach me via LinkedIn or Twitter (Links above)
 
-
-
-## GitHub Stats
-
-Coming soon!
